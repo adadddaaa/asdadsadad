@@ -1,1 +1,1 @@
-Everything is moving in the sky
+一切都在天空中移动
